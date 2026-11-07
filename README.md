@@ -1,0 +1,1 @@
+# neo_vstup_to_speciality_hm1
